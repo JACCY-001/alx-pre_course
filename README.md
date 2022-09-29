@@ -1,1 +1,1 @@
-Praise the Lord
+Never give up
